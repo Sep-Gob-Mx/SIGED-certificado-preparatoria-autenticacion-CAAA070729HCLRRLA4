@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAAA070729HCLRRLA4
+CAAA070729HCLRRLA4
